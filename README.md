@@ -1,0 +1,1 @@
+# Sprinkler-Impairments-Explained-Preplanned-vs.-Emergency-Impairments-Under-NFPA-25
